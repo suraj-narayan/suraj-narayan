@@ -1,5 +1,5 @@
 # 💫About Me :
-I am a 3rd Year B.Tech student, aspired to be a creative developer.
+I am a 4th Year B.Tech student, aspired to be a creative developer.
 I have done Internships in the same and am eager to explore the research field.
 
 
